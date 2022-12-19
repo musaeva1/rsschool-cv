@@ -1,3 +1,3 @@
 # Khadizhat Musaeva
 
-## Contacts tg: @hvdizhvt
+## Contacts tg: @hvdizhvt; ds: @khadi_m
